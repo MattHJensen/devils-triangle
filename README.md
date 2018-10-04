@@ -1,4 +1,4 @@
-Judge, Jury, and Beer. 
+Judge, Judge, Senate, and Beer. 
 
 Devil's Triangle Resources 
 
